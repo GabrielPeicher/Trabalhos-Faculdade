@@ -1,2 +1,2 @@
 # Trabalhos-Faculdade
-Aqui é onde eu guardo meus trabalhos universitários
+Aqui é onde guardo meus trabalhos universitários
